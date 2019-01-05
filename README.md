@@ -3,6 +3,8 @@ An evaluation of the haemoglobin cut-off for mild anaemia in Asians – analysis
 
 Jithin Sam Varghese, Tinku Thomas, Anura Kurpad  
 
+Journal: Indian Journal of Medical Research  
+Link:
 Submitted: March 2018  
 Review 1:  September 2018  
 Accepted: November 2018    
